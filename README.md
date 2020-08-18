@@ -7,4 +7,8 @@ My education
 - Poi Ching Primary School
 - Dunman High School
 
-
+MY STORIES
+- Mr(   )
+......
+- Mrs(   )
+......
