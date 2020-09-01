@@ -8,7 +8,5 @@ My education
 - Dunman High School
 
 MY STORIES
-- Mr(   )
-- ......
-- Mrs(   )
+- Mr Ong
 - ......
